@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Charlie Rob.
+- 👀 Software devloper and loving it.
